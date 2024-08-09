@@ -48,7 +48,7 @@ https://forms.gle/xEJQPzDHWwV29ihL6
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhld6ccZ736QccjYFTGhrh5EuKmjMX3BXdyb6sKMaCKP9jki0KQvyirUIvOmekC5qLCZNt2AKnQcH4myHvNkiYLMDgXGqWbSSa6wPVD11ZKYauwn4zhsMLx_4kjoktXEaXsdhgkEqhjcdiA5gslI5TkfhA3YVfDXuh4ifTXsD-z7o3p_T9YpaYNvE-yIlgn/s1650/Avis-Lic-Excellence-S2IA-aout-2024_page-0002.jpg)
 
-### اجازة التميز الكلية المتعددة التخصصات الناظور 2024-2025
+## اجازة التميز الكلية المتعددة التخصصات الناظور 2024-2025
 *رابط التسجيل: https://docs.google.com/forms/d/e/1FAIpQLSchhbs1VhybVBP83KpdtxKLJgvNaa5cKdxWByBU_F8th4FTHQ/viewform*
 ### تواريخ يجب تذكرها
 * بداية تقديم الطلبات عبر الإنترنت: من **06/08/2024** إلى **15/09/2024**
@@ -70,6 +70,13 @@ https://forms.gle/xEJQPzDHWwV29ihL6
 * نسخة من بطاقة التعريف الوطنية
 
 
+## اجازة التميز كلية العلوم ابن مسيك الدار البيضاء 2024-2025
+يُعلم الطلاب الحاصلين على دبلوم DEUG SMI أو DEUST MIP أو ما يعادله أن الترشح المسبق عبر الإنترنت لاجازة التميز في **Intelligence artificielle** بكلية العلوم بن مسيك للسنة الدراسية 2024-2025 مفتوح من يوم الإثنين 5 أغسطس.
+
+*رابط التسجيل: https://www.fsb.univh2c.ma/licenceexcellence/*
+
+
+⚠️⚠️*بداية تقديم الطلبات عبر الإنترنت: من **05/08/2024** إلى **02/09/2024*** ⚠️⚠️
 
 
 
