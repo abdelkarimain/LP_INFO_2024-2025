@@ -48,6 +48,27 @@ https://forms.gle/xEJQPzDHWwV29ihL6
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhld6ccZ736QccjYFTGhrh5EuKmjMX3BXdyb6sKMaCKP9jki0KQvyirUIvOmekC5qLCZNt2AKnQcH4myHvNkiYLMDgXGqWbSSa6wPVD11ZKYauwn4zhsMLx_4kjoktXEaXsdhgkEqhjcdiA5gslI5TkfhA3YVfDXuh4ifTXsD-z7o3p_T9YpaYNvE-yIlgn/s1650/Avis-Lic-Excellence-S2IA-aout-2024_page-0002.jpg)
 
+### اجازة التميز الكلية المتعددة التخصصات الناظور 2024-2025
+*رابط التسجيل: https://docs.google.com/forms/d/e/1FAIpQLSchhbs1VhybVBP83KpdtxKLJgvNaa5cKdxWByBU_F8th4FTHQ/viewform*
+### تواريخ يجب تذكرها
+* بداية تقديم الطلبات عبر الإنترنت: من **06/08/2024** إلى **15/09/2024**
+* آخر موعد لتقديم طلبات الترشح عبر الإنترنت: **15/09/2024**
+* إعلان نتائج الانتقاء الأولي بعد دراسة الملفات: **18/09/2024**
+* الاختبار الكتابي: **19/09/2024**
+### إجراءات الاختيار:
+* دراسة الملف
+* اختبار كتابي (Langage Python, Probabilités et Statistique, Analyse)
+* اختبار شفوي
+### المستندات المطلوبة للتسجيل:
+⚠️ ️⚠️ *يجب أن تكون الوثائق واضحة وممسوحة ضوئيًا بشكل جيد.* ️⚠️⚠️
+
+
+* طلب مكتوب موجه إلى السيد عميد كلية العلوم
+* سيرة ذاتية (CV)
+* نسخ من كشوف النقاط للسنتين الجامعيتين
+* نسخة من شهادة البكالوريا
+* نسخة من بطاقة التعريف الوطنية
+
 
 
 
