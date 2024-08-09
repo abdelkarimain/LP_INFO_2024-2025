@@ -90,7 +90,7 @@ Bac+2 en Économie et gestion, Mathématiques, Informatique
 
 ### إجراءات الاختيار:
 * دراسة الملف
-* اختبار كتابي (Langage Python, Probabilités et Statistique, Analyse)
+* اختبار كتابي
 * اختبار شفوي
 
 
