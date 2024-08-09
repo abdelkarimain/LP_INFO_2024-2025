@@ -79,7 +79,19 @@ https://forms.gle/xEJQPzDHWwV29ihL6
 ⚠️⚠️*بداية تقديم الطلبات عبر الإنترنت: من **05/08/2024** إلى **02/09/2024*** ⚠️⚠️
 
 
+## اجازة التميز كلية الاقتصاد والتدبير سطات 2024-2025
+**Licence d’Excellence Actuariat et Intelligence Artificielle**
+:
+Bac+2 en Économie et gestion, Mathématiques, Informatique
 
+*رابط التسجيل: https://pre-inscription.uh1.ac.ma/feg.ac.ma/public/Passerelle*
+
+⚠️⚠️*بداية تقديم الطلبات عبر الإنترنت: من **01/08/2024** إلى **15/09/2024*** ⚠️⚠️
+
+### إجراءات الاختيار:
+* دراسة الملف
+* اختبار كتابي (Langage Python, Probabilités et Statistique, Analyse)
+* اختبار شفوي
 
 
 
