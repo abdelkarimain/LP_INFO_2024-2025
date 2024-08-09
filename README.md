@@ -1,4 +1,4 @@
-# LP_INFO_2024-2025
+# الإجازات المهنية في تخصص المعلوميات 2024-2025
 ## الاجازة المهنية الكلية المتعددة التخصصات سيدي بنور 2024-2025
 
 سيتم تقديم ملف الترشح عبر الإنترنت (LP-IMA) Informatique et Mathématiques Appliquées
@@ -90,17 +90,5 @@ Bac+2 en Économie et gestion, Mathématiques, Informatique
 
 ### إجراءات الاختيار:
 * دراسة الملف
-* اختبار كتابي (Langage Python, Probabilités et Statistique, Analyse)
+* اختبار كتابي
 * اختبار شفوي
-
-
-
-
-
-
-
-
-
-
-
-
